@@ -1,5 +1,4 @@
-The titanic was very cool.
+The titanic
 most men died and most women survived
-most kids died, but its okay i guess because they were poor kids
+most kids died, but they were poor kids
 
-they really made a movie about this bullshit
